@@ -1,2 +1,0 @@
-# duketo
-fghfgujjhk
